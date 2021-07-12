@@ -1,1 +1,2 @@
-# chocolate-mug-cake-2-
+# chocolate-mug-cake
+firstly mug cakes are very easy to  make and we need very few ingredients to make any mug cake .Though microwave cakes are not as good as real Oven cakes .but if something is easy and quick to make ,so why not? right?  and your craving can also be fulfilled quickly. There are many varieties and flavours u can make in a microwave.Some recipes of another flavour has even less ingredients which u  can find in your homes easily..My personal favourite one was this  chocolate one .
